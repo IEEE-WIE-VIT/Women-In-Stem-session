@@ -4,4 +4,4 @@
 
 ## WIE Instagram: https://www.instagram.com/ieee_wie_vit/reels/
 
-## Instruction Guide for the session: 
+## Instruction Guide for the session: https://www.canva.com/design/DAEvujkTFfA/JEiJJIAMu9nrUMR8xFA5kw/view?utm_content=DAEvujkTFfA&utm_campaign=designshare&utm_medium=link&utm_source=sharebutton
